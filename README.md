@@ -11,3 +11,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 00001100098148sp@al.educacao.sp.gov.br
 
 @marinaa_gomess
+
+![](https://media1.tenor.com/m/-qBsG1HwR4oAAAAC/cat-dance-dancing-cat.gif)
